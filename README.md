@@ -1,1 +1,0 @@
-# slovodnya-privacy
